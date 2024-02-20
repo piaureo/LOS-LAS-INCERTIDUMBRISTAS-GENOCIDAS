@@ -1,3 +1,23 @@
+TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR
+SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE
+
+https://aiaureo.com/phpbb/
+https://aiaureo.com/phpbb/
+https://aiaureo.com/phpbb/
+https://aiaureo.com/phpbb/
+https://aiaureo.com/phpbb/
+
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+Para educar game: https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
+
 
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR](https://i.postimg.cc/19G1pTPY/ESTO-ES-DE-LO-PEOR-DE-LO-PERO-DEL-MUNDO-EL-DEMONIO-EN-VIDA.png)
 
