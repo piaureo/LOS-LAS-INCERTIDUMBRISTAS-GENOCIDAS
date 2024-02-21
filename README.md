@@ -40,6 +40,8 @@ https://mega.nz/folder/e1BmiJiI#Fv7KDMFpLcizoIE9x-9uoQ
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/W2D6JRrC/GRATIS-1054-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-diaureo-com-www-piaureo-com-20230901.jpg)
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/MWv2MG9w/20230901-034712-COLLAGE-1024x1024.jpg)
 ![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/4JqCzT09/aiaureo-com-diaureo-com-piaureo-com-andnitro-alan-aldo-nunez-dalleto-date-20230830-045522-COLLAGE-sc.jpg)
+![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/BnMCxDBC/No-Se-20230827-021137-COLLAGE-1-scaled-7.jpg)
+![TENGO QUE HACER TODO YO CHUPENLO MALDITOS NO SE PROGRAMAR SON LA MIERDA DEL MUNDO AYUDAME A AYUDARTE](https://i.postimg.cc/hvW8S0KK/GRATIS-1056-www-pieureo-com-www-aiaureo-com-www-diaureo-com-www-diaureo-com-www-piaureo-com-La-Suer.png)
 
 
 
